@@ -4,4 +4,4 @@ Meu nome é emilly
 
 -Eu estou estudando na alura
 
-![](https://tenor.com/pt-BR/view/blushing-anime-girl-anime-blushing-nervous-anime-shy-anime-gif-6542489949208528100)
+![](https://media1.tenor.com/m/WsuX8fkjROQAAAAC/blushing-anime-girl.gif)
